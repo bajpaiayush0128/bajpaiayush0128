@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **ayushbajpai2004@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ownFKnvNCVkaPYF_bMHo8Eh7yFFo9Q4q/view?usp=sharing](https://drive.google.com/file/d/1ownFKnvNCVkaPYF_bMHo8Eh7yFFo9Q4q/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/17q6ImPWHfJ_ERSlGnmsu84RPc37_luPi/view?usp=drive_link](https://drive.google.com/file/d/17q6ImPWHfJ_ERSlGnmsu84RPc37_luPi/view?usp=drive_link)
 
 - ⚡ Fun fact **My favourite food is ladyfinger-rice(prepared seperately😏)**
 
